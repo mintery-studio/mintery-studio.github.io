@@ -1,1 +1,0 @@
-# mintery-studio.github.io
